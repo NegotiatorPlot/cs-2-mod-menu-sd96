@@ -1,4 +1,4 @@
-
+Experience cs 2 mod menu like never before with cs 2 mod menu advanced Aim Assist: god mode & hitbox expand, the #1 aim assist. Includes god mode and hitbox expand for unbeatable
 
 
 
